@@ -1,1 +1,1 @@
-## Hi there! 👋 I'm Shintaro Yoshida　（[@shintaroyoshida20](https://github.com/shintaroyoshida20))
+## Hi there! 👋 I'm Shintaro Yoshida　（[@syoshida20](https://github.com/syoshida20))
